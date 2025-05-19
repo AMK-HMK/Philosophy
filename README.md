@@ -1,3 +1,3 @@
 # Philosophy
 Книги с выделенным текстом загружены сюда
-https://drive.google.com/drive/u/1/folders/1mIlmbeCOu9zIg5eda-K4-kZ4qUbZAHmE
+https://drive.google.com/drive/folders/1RYix5jPzKJD__XSFfnqNxoTYCsl7J1e_?usp=sharing
